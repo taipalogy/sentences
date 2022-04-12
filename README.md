@@ -1,5 +1,5 @@
 # sentences
-Taiwanese sentence examples
+Taiwanese example sentences
 
 # LICENSE
 see index.html
