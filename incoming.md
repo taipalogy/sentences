@@ -1,10 +1,14 @@
 # Incoming
 
-* Siokk turz siokk, mwmihf burz chinnx thangz buey.
-* Hury turz hury, mawkurhf gua mw aiw.
 * Tiw 你 behf khunw 進前, 門着愛關 hoz 好。
-* 我 te 欠 langw ew turw 無 le 急 aw，tann 你 hongz 欠 ew le 急啥 lah。
-* 你 anfne kaw 我 pur lurh khih ow。
+* Tann 是 behf anfchuanny
+* 食 he
+* ifkingz 食 kahf 棺材 lngy 一半 khahf ke a
+* 目周 pehy hoz 金
+* 目周 thi 金
+* 目周 thiy khuih
+* 走 aw 不走, 攏嘛 buew huw aw.
+* Behf 買 aw 不買, 着愛做決定.
 
 ### 用法分類
 

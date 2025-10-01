@@ -1,5 +1,0 @@
-# Kam
-
-## Kamy
-
-### kam ewtangy
