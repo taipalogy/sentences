@@ -1,6 +1,6 @@
-# 敍述文 (Declarative Sentence)
+# 敘述文 (Declarative Sentence)
 
-平敍文
+平敘文
 
 * 我 ifking 忍 li 真久 aw。
 * 生活費用真 kiannzlangz
